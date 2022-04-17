@@ -2,4 +2,4 @@
 Alibaban renkaat ei mahdu taskuun. 
 "Cuban Yoyo" amerikaksi. 
 
-<img src=rengas.png>
+<img src=rengas..png>
