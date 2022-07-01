@@ -2,7 +2,7 @@
 Alibaban renkaat ei mahdu taskuun. 
 "Cuban Yoyo" amerikaksi. 
 
-https://youtu.be/VqYIM6JAinA?t=4929
+https://youtu.be/NqT2dV5gQTk
 
 <img src=models.png>
 
